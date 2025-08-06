@@ -1,8 +1,6 @@
-## hey, im Cole / casper / holly
-im not really public about my age, unless i know you.
+## ⋆˚｡⋆୨✧୧˚нαιι нεllo !! ιтѕ мε★·.·⍣·.·★.·
+   ⋆˚｡⋆୨✧୧˚cαѕpεr/нolly/colε★·.·⍣·.·★.·
+    ⋆˚｡⋆୨✧୧˚нε/тнεy/ιт/pαw★·.·⍣·.·★.·
+,⋆˚｡⋆୨✧୧˚ι lovε мy ғrιε!dѕ :3 < 3 ★·.·⍣·.·★.·
 
-hobbies: reading, playing videogames
-
-im a host, i like to roleplay dont judge :3 
-
-okay baii ^___^
+okay baii ^___^ -- <#
